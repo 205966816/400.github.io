@@ -2,5 +2,3 @@
   
         
 ![image](https://github.com/205966816/400.github.io/raw/master/imgs/1.png)
-
-{% include baidu-analysis.html %} 
