@@ -1,5 +1,3 @@
   400.移动  此域名非常适合推广400业务的企业使用,如有意向请联系QQ：205966816！
   
-        
-![image](https://github.com/205966816/400.github.io/raw/master/imgs/1.png)
-![image](http://web-img.qmimg.com/qianmicom/u/cms/qmwww2/201706/13105813gk97.png)
+![image](http://img.kbscdn.cn/shop/bbe9b1db/5e7dce8e4a4bc.png)
